@@ -1,0 +1,37 @@
+# Café 72121c59c79244dfa1f1559a08a0d5ed
+
+## Café
+
+## Playlist minha no YT de vídeos sobre café
+
+[null](https://www.youtube.com/playlist?list=PL8X4H2m3ixBcjmikbrFhfI\_AHqYcsBMKn)
+
+[Como montar um setup de equipamentos de ESPRESSO (NÃO COMPRE UMA MÁQUINA SEM O...) | Não Sou Barista](https://www.youtube.com/watch?v=1XFu5OPhLRg)
+
+### Grinders
+
+[Grinders - Produtos](../../Home%20Dashboard%20%F0%9F%92%99%201eb3b7307dda4bc48e5b417e4d9d035c/Cafe%CC%81%2072121c59c79244dfa1f1559a08a0d5ed/Grinders%20-%20Produtos%20d32def9637d54bb19c9efe29a1cc841c.csv)
+
+### General resources
+
+[Top 5 Best Espresso Grinders Under $500](https://www.youtube.com/watch?v=BuCcnPil0AI\&list=WL\&index=39)
+
+### Espresso Machines
+
+### Scales
+
+### Produtos variados
+
+[54mm Bottomless Portafilter](https://cremacoffeeproducts.com/collections/portafilters/products/54mm-bottomless-portafilter?ghref=8326:173091)
+
+[53.4mm Dosing Cup](https://cremacoffeeproducts.com/collections/dosing-cups/products/54mm-dosing-cup?ghref=8326:173091)
+
+Espresso
+
+[How to Pull an Espresso Shot: Everything A Beginner Needs to Know](https://www.youtube.com/watch?v=XMEQ18GQJVc)
+
+* Don’t get a new
+* Get a new tamper - nothing with the click or something
+* See Jacob’s thing
+* Filter basket
+* Porta filter
